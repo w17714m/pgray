@@ -1,1 +1,1 @@
-https://pruebas.free.beeceptor.com 
+https://jamie-pearl-stock-status.trycloudflare.com/auth
